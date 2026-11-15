@@ -1,1 +1,0 @@
-An artist from Kenya.
